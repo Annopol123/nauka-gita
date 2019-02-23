@@ -1,3 +1,1 @@
-nic nie wiem lala
-moje co
-lalalalalalalals
+zaczynamy od poczatku 
