@@ -1,2 +1,3 @@
 nic nie wiem lala
-moje cos
+moje co
+lalalalalalalals
